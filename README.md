@@ -1,1 +1,1 @@
-# shinchan-comfort-corner1
+# shinchan-comfort-corner
